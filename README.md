@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **I.T Support and Bootstrap**
 
-- 📫 How to reach me **https://www.linkedin.com/in/marco-antonio-alves-moura-229637178/**
+- 📫 How to reach me **https://www.linkedin.com/in/marco-moura/**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
